@@ -1,4 +1,4 @@
-# hello_word
+# Mango Chops Studio
 My first ever README.md
 
 ## Heading
@@ -11,4 +11,4 @@ My first ever README.md
 
 Follow me on Instagram [Instagram](https://www.instagram.com/mbugua.frames)
 
- {#Mango Chops Studio}
+
