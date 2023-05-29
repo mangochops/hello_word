@@ -7,4 +7,4 @@ My first ever README.md
 
 ###### Heading
 
-** Mango Chops Studio ** is the future if not the  **Now**
+**Mango Chops Studio** is the future if not the  **Now**
