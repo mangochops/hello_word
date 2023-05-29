@@ -24,3 +24,5 @@ Follow me on Instagram [Instagram](https://www.instagram.com/mbugua.frames)
 Here is my favourite artist
 
 Notorius BIG [BIGGY](https://www.google.com/notoriusbig)
+
+J Cole [J COLE](https://www.google.com/jcole)
