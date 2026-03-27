@@ -13,7 +13,7 @@ Hi, I’m Willicent Mbugua, a creative enthusiast with a passion for storytellin
 ## Areas of Interest  
 - **Software Mastery**: Exploring tools to enhance creative expression.  
 - **Design and Aesthetics**: Blending retro influences with modern trends.  
-- **Cinematography**: Crafting stories through visuals.  
+ 
 
 ---
 
