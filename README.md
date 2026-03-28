@@ -24,6 +24,6 @@ For collaborations, inquiries, or just to say hello, you can reach me at:
 ---
 
 ## Final Thought  
-I believe in the power of creativity to shape the future. Thank you for visiting **Mango Chops Studio**.  
+I believe in the power of creativity to shape the future. Thank you for visiting **Mango Chops Studio**.  Here for the future innovations
 
 ---
